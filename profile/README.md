@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hai Masbro 👋
 
-🙋‍♀️ This is a repository for learning random stuff. It's funny when our teacher taught us Github before everything else.
+🙋‍♀️ Jangan lupa jaga kebersihan, Pak Kades harus dibuatkan kopi.
 <!--
