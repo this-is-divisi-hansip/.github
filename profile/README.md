@@ -1,4 +1,4 @@
 ## Hai Masbro 👋
 
-🙋‍♀️ Jangan lupa jaga kebersihan, Pak Kades harus dibuatkan kopi.
+🙋‍♀️ Jangan lupa jaga kebersihan, moga-moga Pak Kades sering-sering berkunjung.
 <!--
